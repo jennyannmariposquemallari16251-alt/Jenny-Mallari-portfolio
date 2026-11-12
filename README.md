@@ -1,1 +1,0 @@
-# Jenny-Mallari-portfolio
